@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @akashchoudhary2408
 - 👀 I’m interested in watching movie 
 - 🌱 I’m currently learning computer engineering 
-- 💞️ I’m looking to collaborate on cyber security 
 - 📫 How to reach me by my mail id 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 
